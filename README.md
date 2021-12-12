@@ -4,6 +4,8 @@
 
 ### Video
 
+https://drive.google.com/file/d/1yLrZuhNikaaQfnShzq95y9VIY7knpMb7/view?usp=sharing
+
 ### Slides
 
 https://docs.google.com/presentation/d/1Db4IFuDABlomjgAOj_SmtoOUdC_8TYiK0fARS8e_Yu8/edit?usp=sharing
